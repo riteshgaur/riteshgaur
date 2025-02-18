@@ -3,7 +3,7 @@
 
 # 💫 About Me:
 Working on AI Systems<br>
-Come to me for : Startup Providing Consulting
+Come to me for :  Products | Systems I Help by Providing Consulting
 <br>
 Help me in : Learning Chinese<br>
 Ask me about: Life<br>
