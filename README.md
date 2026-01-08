@@ -7,7 +7,7 @@ Come to me for :  Products | Systems | Consulting | Fractional CTO/COO for start
 <br>
 Help me in : Learning Chinese<br>
 Ask me about: Life<br>
-Master’s in IT, MBA, BCA, Harvard and IIM-A leadership courses, Lean Six Sigma, SCJP 5.0, hands-on coding (multiple languages, frameworks, SQL, AWS setup), design understanding skills (Photoshop, FCPX, Adobe AI, Figma, Canva, etc.), wire-framing and prototyping, and a slew of online courses to stay sharp. It’s a Swiss Army knife of expertise. At 45, with PSM (Professional Scrum Master) and global PMO experience on top, I am a rare blend of technical depth, business acumen, and leadership grit.
+Master’s in IT, MBA, BCA, Harvard and IIM-A leadership courses, Lean Six Sigma, SCJP 5.0, hands-on coding (multiple languages, frameworks, SQL, AWS setup), design understanding skills (Photoshop, FCPX, Adobe AI, Figma, Canva, etc.), wire-framing and prototyping, and a few online courses to stay sharp. It’s a Swiss Army knife of expertise. At 45, with PSM (Professional Scrum Master) and global PMO experience on top, I am a rare blend of technical depth, business acumen, and leadership grit.
 
 
 ## 🌐 Socials:
